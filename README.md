@@ -8,4 +8,4 @@ QQ群交流：304584722
 
 
 
-https://5mei.github.io/1/cn/index.html
+[➡️Copy](https://5mei.github.io/1/cn/index.html) - 网址导航
